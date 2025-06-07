@@ -1,1 +1,2 @@
 # Gift-Shop
+Welcome to Gift Shop! We specialize in bringing joy through a curated collection of unique and thoughtful gifts, from delightful toys to handcrafted treasures. Our mission is to make every occasion special by offering high-quality products that spark happiness and creativity. Whether you're looking for the perfect present or something special for yourself, we've got you covered. Explore our shop and find a gift that tells a story!
